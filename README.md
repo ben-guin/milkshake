@@ -1,4 +1,4 @@
 milkshake
 =========
 
-strawberry is bets
+strawberry is best
